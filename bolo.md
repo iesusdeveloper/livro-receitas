@@ -16,7 +16,4 @@
 
 - asdasdfdsgfq
 
-  Modo de preparo
-
-  
 
